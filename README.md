@@ -1,0 +1,2 @@
+# CJ
+ALLAH IS MASTER
